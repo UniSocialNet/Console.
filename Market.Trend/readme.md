@@ -1,2 +1,2 @@
-[The Gaming Market is Starting to Break.](
-@Mrwhosetheboss
+- [The Gaming Market is Starting to Break.](https://youtu.be/Eo5w2S-h5dI) by: @Mrwhosetheboss
+- [
