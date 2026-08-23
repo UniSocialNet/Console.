@@ -4,5 +4,4 @@
 - [The Uncomfortable Truth Behind Sony's Decision](https://youtu.be/NzezVu-JsAo)
 - [Huge Playstation Blackout Is Happening...](https://youtu.be/PMYyNRxibMI) by: SomeOrdinaryGamers
 - [Sony is Sending Emails to Gamers to Remind them that THEY OWN NOTHING!](https://youtu.be/U4Q9VL3CVF0)
-- [GTA 6 Hacker, CyberLeek, Just Burned ALL $1.5 Million in Dev Tokens to Prove he's NOT Scamming Us!](https://youtu.be/gXKJJlAiI-k)
-- 
+- [This is How We Fight Back Against Playstation! THE BLACKOUT!](https://youtu.be/AdvvI7nRADI)
