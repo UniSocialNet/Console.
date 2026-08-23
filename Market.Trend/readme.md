@@ -1,3 +1,5 @@
 - [The Gaming Market is Starting to Break.](https://youtu.be/Eo5w2S-h5dI) by: @Mrwhosetheboss
 - [Sony is Digging Their Own Grave...](https://youtu.be/GiGIbk1OgHw)
 - [F You, Sony | Bringing Back Discs & Learning a Lost Art, Pt. 1](https://youtu.be/0_9CgZZry5c) @Gamers Nexus
+- [The Uncomfortable Truth Behind Sony's Decision](https://youtu.be/NzezVu-JsAo)
+- 
