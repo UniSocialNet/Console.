@@ -2,4 +2,5 @@
 - [Sony is Digging Their Own Grave...](https://youtu.be/GiGIbk1OgHw)
 - [F You, Sony | Bringing Back Discs & Learning a Lost Art, Pt. 1](https://youtu.be/0_9CgZZry5c) @Gamers Nexus
 - [The Uncomfortable Truth Behind Sony's Decision](https://youtu.be/NzezVu-JsAo)
+- [Huge Playstation Blackout Is Happening...](https://youtu.be/PMYyNRxibMI) by: SomeOrdinaryGamers
 - 
